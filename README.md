@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Fessiko.github.io/rsschool-cv/cv
