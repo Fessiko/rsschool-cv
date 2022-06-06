@@ -7,9 +7,9 @@
 ## **About myself:** ##
 I want to learn a new profession.
 ## **Skills:**
-Not yet available
+Not yet available...
 ## **Work experience:**
-Not yet available
+Not yet available...
 ## **Education:**
 Volga Academy of Public Administration - manager.
 ## **Language:**
